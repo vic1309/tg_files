@@ -13,5 +13,5 @@ Além da versão final e do código, também disponibilizo:
      - Apresentação e 
      - Pôster apresentado no SIICUSP.
 
-Para maiores informações: vc.ma1309@gmail.com
+Qualquer dúvida: vc.ma1309@gmail.com
 
